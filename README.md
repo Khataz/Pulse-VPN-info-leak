@@ -9,4 +9,4 @@ https://twitter.com/Bank_Security/status/1290742997529829383
 
 https://twitter.com/_IntelligenceX/status/1290975646068494337
 
-侵删联系
+侵删联系，文件收集于互联网。如恶意利用本人无责任。
